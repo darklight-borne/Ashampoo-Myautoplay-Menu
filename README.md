@@ -216,4 +216,4 @@ Ashampoo MyAutoplay Menu is provided as a complete free version, offering all fe
 Don't miss out on the chance to elevate your CD and DVD presentations. **Download Ashampoo MyAutoplay Menu free today and start creating stunning interactive menus!**
 
 ---
-**Last updated:** 2026-09-28 15:08:02 UTC
+**Last updated:** 2026-09-28 21:41:48 UTC
